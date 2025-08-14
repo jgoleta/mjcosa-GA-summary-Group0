@@ -1,13 +1,14 @@
 Justin Goleta
 Opening remarks:
-Techno prof (mam michelle)-
-Embrace the onstart spirit.
-Spark ideas
-Year ahead holds so much potential.
-Make it the year of growth.
-Welcoming i  the department of computer science.
 
--Kaunting kamustahan by the host.
+Techno prof (mam michelle)-
+- Embrace the onstart spirit.
+- Spark ideas
+- Year ahead holds so much potential.
+- Make it the year of growth.
+- Welcoming i  the department of computer science.
+
+Kaunting kamustahan by the host.
 -introduction and expectations by some first years.
 -Introduction of officers.
 
